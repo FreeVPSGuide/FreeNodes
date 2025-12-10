@@ -1,10 +1,10 @@
-实测「青山」教程，强烈推荐！
+实测「青山」教程，强烈推荐！👉👉👉 [一键注册，免费使用24小时](https://qsqs.life/register?code=hzhSNrdy)
 
 这款Tizi 我个⼈也⽤了3 个⽉了，体验确实还可以了，平时主要⽤来看X 的帖⼦、逛逛V2ex、看看Tk。
 
 ⼗分稳定、速度块、价格便宜，所以强烈推荐！
 
-![](Images/1.png)
+![](Images/1.png){:height="50%" width="50%"}
 
 #### 1、为什么推荐QinShan？
 
@@ -24,13 +24,13 @@
 
 免费试⽤的时间是24  ⼩时，如果仅仅只是偶尔使⽤的话，直接免费试⽤这款TZ，也是个不错的选择。
 
-![](Images/3.png)
+![](Images/3.png){:class="img-responsive"}
 
 #### 3、使⽤教程
 
-准备⼀个邮箱即可完成注册，注册地址：[⻘⼭（TiZi）注册地址](https://qsqs.life/register?code=hzhSNrdy)
+准备⼀个邮箱即可完成注册，注册地址：👉👉👉 [⻘⼭（TiZi）注册地址](https://qsqs.life/register?code=hzhSNrdy)
 
-![](Images/4.png)
+![](Images/4.png){:class="img-responsive"}
 
 #### 4、下载客⼾端
 
