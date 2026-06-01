@@ -1,4 +1,4 @@
-实测「青山」教程，强烈推荐！👉👉👉 [一键注册，免费使用24小时](https://qsqs.life/register?code=hzhSNrdy)
+实测「青山」教程，强烈推荐！👉👉👉 [一键注册，免费使用24小时](https://qsqs.club/register?code=hzhSNrdy)
 
 这款Tizi 我个⼈也⽤了3 个⽉了，体验确实还可以了，平时主要⽤来看X 的帖⼦、逛逛V2ex、看看Tk。
 
@@ -28,7 +28,7 @@
 
 #### 3、使⽤教程
 
-准备⼀个邮箱即可完成注册，注册地址：👉👉👉 [⻘⼭（TiZi）注册地址](https://qsqs.life/register?code=hzhSNrdy)
+准备⼀个邮箱即可完成注册，注册地址：👉👉👉 [⻘⼭（TiZi）注册地址](https://qsqs.club/register?code=hzhSNrdy)
 
 ![](Images/4.png){:class="img-responsive"}
 
