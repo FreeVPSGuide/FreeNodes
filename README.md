@@ -1,4 +1,4 @@
-实测「米奇云」教程，强烈推荐！👉👉👉 [一键注册，最低月付18元/150G](https://miki.la/#/register?code=9qeqAeH8)
+实测「米奇云」教程，强烈推荐！👉👉👉 [一键注册，最低月付18元/150G](https://mikicloud.xyz/#/register?code=9qeqAeH8)
 
 这款Tizi 我个⼈也⽤了大半年了了，体验确实还可以了，平时主要⽤来看X 的帖⼦、逛逛V2ex、看看Tk。
 
