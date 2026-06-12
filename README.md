@@ -37,7 +37,7 @@
 
 #### 3、使⽤教程
 
-准备⼀个邮箱即可完成注册，注册地址：👉👉👉 [米奇云（俗称：梯子、魔法网络）注册地址](https://miki.la/#/register?code=9qeqAeH8)
+准备⼀个邮箱即可完成注册，注册地址：👉👉👉 [米奇云（俗称：梯子、魔法网络）注册地址](https://mikicloud.xyz/#/register?code=9qeqAeH8)
 
 
 ![](https://files.mdnice.com/user/4562/734a2053-5dc2-428a-a75d-25f85543281a.png)
