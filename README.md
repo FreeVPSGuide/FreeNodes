@@ -1,4 +1,9 @@
-实测「米奇云」教程，强烈推荐！👉👉👉 [一键注册，最低月付18元/150G](https://mikicloud.xyz/#/register?code=9qeqAeH8)
+实测「米奇云」教程，强烈推荐！
+
+
+👉👉👉 [一键注册迅帆云，免费试用3G+月付低至10元/50G](https://xunfan.app/#/register?code=HC1SpWJP)
+
+[(备用链接)迅帆云，免费试用3G+月付低至10元/50G](https://457785.xyz/#/register?code=HC1SpWJP)
 
 这款Tizi 我个⼈也⽤了大半年了了，体验确实还可以了，平时主要⽤来看X 的帖⼦、逛逛V2ex、看看Tk。
 
@@ -39,15 +44,17 @@
 
 准备⼀个邮箱即可完成注册，注册地址：👉👉👉 [迅帆云（俗称：梯子、魔法网络）注册地址](https://xunfan.app/#/register?code=HC1SpWJP)
 
+[(备用链接)迅帆云，免费试用3G+月付低至10元/50G](https://457785.xyz/#/register?code=HC1SpWJP)
 
-![](https://files.mdnice.com/user/4562/734a2053-5dc2-428a-a75d-25f85543281a.png)
+![](https://files.mdnice.com/user/4562/7f4bbe20-83dc-4149-90dc-8bceb2711620.png)
 
 
 #### 4、下载客⼾端
 
 支持苹果、安卓/鸿蒙、Windows、Mac
 
-![](https://files.mdnice.com/user/4562/555dde84-991f-4bad-b5f7-e87372ff28d1.png)
+![](https://files.mdnice.com/user/4562/3d733e29-539c-4c2c-92cf-6987df883730.png)
+
 
 
 #### 5、Windows 使⽤教程
